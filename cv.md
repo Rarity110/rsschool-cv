@@ -3,7 +3,7 @@
 ## TATSIANA KISIALEVICH
 ***
 ### Contact information:
-* Phone: +375 33 3328622
+* Phone: +375 333328622
 * Email: rarity110@mail.ru
 * GitHub: rarity110
 
